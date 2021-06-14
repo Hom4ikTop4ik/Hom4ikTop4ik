@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hom4ikTop4ik
+- 👀 I’m interested in something
+- 🌱 I’m currently learning  somewhere
+- 💞️ I’m looking to collaborate on something
+- 📫 How to reach me? It's simple)
